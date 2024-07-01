@@ -13,7 +13,7 @@
 ![image](https://github.com/OlgaAvd/OlgaAvd/assets/172474443/e06ea3e5-08f7-4093-87b7-7855f559901c)
 ![image](https://github.com/OlgaAvd/OlgaAvd/assets/172474443/9d91f573-4576-4626-af9b-53bfbf180220)
 ![image](https://img.icons8.com/?size=100&id=9Kvi1p1F0tUo&format=png&color=000000)
-![image](https://github.com/OlgaAvd/OlgaAvd/assets/172474443/6b8c3794-9999-40d5-8129-7b19ac7672be)
+![image](https://w7.pngwing.com/pngs/138/659/png-transparent-tableau-software-hd-logo-thumbnail.png)
 
 
 
