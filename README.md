@@ -13,7 +13,7 @@
 ![image](https://github.com/OlgaAvd/OlgaAvd/assets/172474443/e06ea3e5-08f7-4093-87b7-7855f559901c)
 ![image](https://github.com/OlgaAvd/OlgaAvd/assets/172474443/9d91f573-4576-4626-af9b-53bfbf180220)
 ![image](https://img.icons8.com/?size=100&id=9Kvi1p1F0tUo&format=png&color=000000)
-![image](https://banner2.cleanpng.com/20180920/zg/kisspng-tableau-software-computer-software-logo-business-i-solutions-hiq-labs-5ba37fcfa98d05.1160308115374417436945.jpg)
+![image](https://img.icons8.com/ios7/600w/000000/tableau-software.png)
 
 
 
