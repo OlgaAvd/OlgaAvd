@@ -1,4 +1,4 @@
-![tableau-svgrepo-com](https://github.com/OlgaAvd/OlgaAvd/assets/172474443/4cfa10d4-1733-4864-adc2-8cbaaa7fdf56)#### About me \ Обо мне
+#### About me \ Обо мне
 -	Мне нравится участвовать в начальных этапах проекта, чтобы получить четкое представление о масштабах и направлениях задач.
 -	Мне комфортно, когда ощущается спокойствие, дружелюбие, теплота и гостеприимство. Я хочу работать в атмосфере, где первостепенное значение имеет обмен творческими идеями, поддержка обсуждений и совместное принятие решений.
 -	Хочу развиваться как аналитик данных. Для этого в свободное время прохожу онлайн-курсы. Любовь к деталям и мелочам, а также системный подход помогают мне в этом. Я хочу помогать окружающим в достижении целей и удовлетворять потребности.
@@ -13,7 +13,7 @@
 ![image](https://github.com/OlgaAvd/OlgaAvd/assets/172474443/e06ea3e5-08f7-4093-87b7-7855f559901c)
 ![image](https://github.com/OlgaAvd/OlgaAvd/assets/172474443/9d91f573-4576-4626-af9b-53bfbf180220)
 ![image](https://img.icons8.com/?size=100&id=9Kvi1p1F0tUo&format=png&color=000000)
-![tableau](https://github.com/OlgaAvd/OlgaAvd/assets/172474443/b71c82a5-4c59-4b21-bf10-a24a2e3debed)
+![image](https://banner2.cleanpng.com/20180920/zg/kisspng-tableau-software-computer-software-logo-business-i-solutions-hiq-labs-5ba37fcfa98d05.1160308115374417436945.jpg)
 
 
 
