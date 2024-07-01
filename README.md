@@ -12,7 +12,7 @@
 ![image](https://github.com/OlgaAvd/OlgaAvd/assets/172474443/cb23e54a-ca3b-4f63-a21c-141bcdc32df7)
 ![image](https://github.com/OlgaAvd/OlgaAvd/assets/172474443/e06ea3e5-08f7-4093-87b7-7855f559901c)
 ![image](https://github.com/OlgaAvd/OlgaAvd/assets/172474443/9d91f573-4576-4626-af9b-53bfbf180220)
-![images](https://github.com/OlgaAvd/OlgaAvd/assets/172474443/b1b7af26-bd28-4450-9f8d-d360ada49b9f)
+![images](https://github.com/OlgaAvd/OlgaAvd/assets/172474443/91c90e88-8585-4c88-a2d9-bdcfc421f1e6)
 
 
 #### Follow Me \ Связаться со мной
